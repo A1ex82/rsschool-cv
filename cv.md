@@ -1,7 +1,7 @@
 # Aliaksandr Navitski
 
 **Contacts:**
-* Discord: A1ex82
+* Discord: A1ex82#0845
 * E-mail: navitski82@gmail.com
 * Tel: +375292727439
 
